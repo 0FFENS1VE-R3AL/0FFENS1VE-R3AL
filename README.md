@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I'm Julian. I'm very interested in coding and gaming if you are too, feel free to join my discord server. The 0FFENS1VE community is currently very small, but everyone started out small, right? I'm glad you found this account and I hope you find the code you were looking for here!
+**Hi, I'm Julian. I'm very interested in coding and gaming if you are too, feel free to join my discord server. The 0FFENS1VE community is currently very small, but everyone started out small, right? I'm glad you found this account and I hope you find the code you were looking for here!**
 
 
 ## 🌐 Socials:
