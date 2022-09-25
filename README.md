@@ -16,5 +16,15 @@
 [![](https://visitcount.itsvg.in/api?id=0FFENS1VE-R3AL&icon=8&color=6)](https://visitcount.itsvg.in)
 
   ## 💰 You can help me by Donating
-  [![PayPal](https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://paypal.me/S0C1AL) 
+PayPal // www.paypal.me/S0C1AL
+
+Bitcoin // bc1q4q5l24qwv3tuu2fdatnjzhk0v4vrahyzc66y60
+
+Bitcoin Cash // qqm9el49c8cvtz7cc7fxz2yu0l0j079cssvdf86r5u
+
+Ethereum // 0x0d7C461154D2B19De35830655C32fBb029527893
+
+Lifecoin // ltc1qr8kmxqne3y2qjc86yjrg69yj7k2qzx2c5hpz25
+
+Polygon // 0x0d7C461154D2B19De35830655C32fBb029527893
   
